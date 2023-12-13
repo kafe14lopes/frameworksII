@@ -1,2 +1,2 @@
 # frameworksII
-Fernado, Tainá e Rafael turma 6B
+Kauany Lopes, Brenda Romero e Maria Clara 6A
